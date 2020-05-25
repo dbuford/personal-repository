@@ -1,3 +1,3 @@
 For my dream vacation, I would visit Greece. I would spend all day in the water, taking photos,living in a cool house, and enjoying life. It will be amazing!
 ![Picture of Greece](greece.jpg)
-![Information about Greece](https://www.google.com/travel/guide?q=greece+travel&rlz=1CAERIM_enUS902&oq=greece+travel&aqs=chrome..69i57j0l7.4886j0j7&sourceid=chrome&ie=UTF-8&dest_src=o&tcfs=EgoKCC9tLzAzNXF5&dest_mid=/m/035qy&sa=X&ved=2ahUKEwi-iqKJ3s3pAhUBM6wKHTA7AqMQ6tEBKAQwCnoECAsQFw#dest_mid=/m/035qy&dest_src=o&tcfs=EiYKCC9tLzAzNXF5GhgKCjIwMjAtMDYtMTASCjIwMjAtMDYtMTQgAQ)
+![Information about Greece](https://www.greece-is.com/when-can-i-travel-to-greece-again/)
